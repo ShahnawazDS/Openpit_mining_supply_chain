@@ -1,0 +1,1 @@
+# Openpit_mining_supply_chain
